@@ -1,5 +1,4 @@
-- Hey there, I’m @scribkwa I wanna make otomes!
-- Reach out to me through this link! https://galair.carrd.co/
+- hi hi! i am learning :>
 
 <!---
 galair1/galair1 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
