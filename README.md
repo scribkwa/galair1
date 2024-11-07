@@ -1,4 +1,4 @@
-- Hey there, I’m @galair1 I wanna make otomes!
+- Hey there, I’m @scribkwa I wanna make otomes!
 - Reach out to me through this link! https://galair.carrd.co/
 
 <!---
